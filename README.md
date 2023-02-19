@@ -1,1 +1,1 @@
-berikut link hasil web https://ariiqmln.github.io/website/ 
+https://ariiqmln.github.io/website/ 
